@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @vfang4151
+- 👋 Hi, I’m Veronica, a highschool school senior in Dallas.
