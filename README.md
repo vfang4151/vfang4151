@@ -1,1 +1,1 @@
-- 👋 Hi, I’m Veronica, a highschool school senior in Dallas.
+- 👋 Hi, I’m Veronica, a high school senior in Dallas.
